@@ -1,0 +1,2 @@
+# Menajerveritabani
+OYUNCUMENAJERİ VERİTABANI
